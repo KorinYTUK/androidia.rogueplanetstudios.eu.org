@@ -1,1 +1,0 @@
-# androidia.rogueplanetstudios.eu.org
